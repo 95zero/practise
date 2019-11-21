@@ -5,4 +5,4 @@ eEverthing is prosiable，
 eEverthing is prosiable，
  if we could arrive one place ,it must be there。
  we can go everwhere we want to go
-
+很多时候非常的矛盾
